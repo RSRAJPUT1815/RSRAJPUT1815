@@ -6,9 +6,10 @@ Email Me 👉 ✉️ **rsrajput1815@gmail.com** For Collaboration/Project or Any
 - 🔭 **I’m currently working on:** Potrfolio
 - 🌱 **I’m currently learning:** Advance backend
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** Enter your email here
+- 📫 **How to reach me:** rsrajput1815@gmail.com
 - 😄 **Pronouns:** Rohit || He/Him
-- ⚡ **Fun fact:** I Like reading and learning
+- ⚡ **Fun fact:** I like anime and manga
+- 🚴‍♂️ **Hobby** fun coding , exercise , learning
 
 
 ## 🏆 GitHub Trophies
