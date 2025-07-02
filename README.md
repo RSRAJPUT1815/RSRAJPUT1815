@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **rsrajput1815@gmail.com** For Collaboration/Project or Any
 - 📫 **How to reach me:** rsrajput1815@gmail.com
 - 😄 **Pronouns:** Rohit || He/Him
 - ⚡ **Fun fact:** I like anime and manga
-- 🚴‍♂️ **Hobby** fun coding , exercise , learning
+- 🚴‍♂️ **Hobby:** fun coding , exercise , learning
 
 
 ## 🏆 GitHub Trophies
